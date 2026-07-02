@@ -9,5 +9,5 @@ Year 1995 - 2026:
 Where the Sun Rises Over the Crocodile's Tile - Digital Version.02
 [ A Collection of Maps ]
 
-Year 2026 --
+Year 2026 ..
 
